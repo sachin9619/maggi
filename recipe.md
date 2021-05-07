@@ -1,0 +1,1 @@
+firt boil water and put maggi on that and after 30 sec put maggi masala ane lave it for 2 minute the put maggi in plate and eat and as you wish do that..
